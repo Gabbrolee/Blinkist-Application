@@ -8,7 +8,8 @@ https://docs.google.com/document/d/1C03QN42QiZOZxtfYQAy3kVMjtyjMWWIOg90jdLtd4y0/
 
 The above mentioned link shows all the details needed to finish the task.
 
-
+link to my bliskist app:
+https://drive.google.com/file/d/1lwiZ46M2UUM0rVsgvXNBK0CYJF7dKoVM/view?usp=sharing    
 
 
 
